@@ -1,4 +1,4 @@
-### Hi there 👋
+ヽ(o＾▽＾o)ノ	
 
 <!--
 **herrmannplatz/herrmannplatz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
